@@ -4,10 +4,10 @@
 
 <h1 align="center"> |MR.JAMES|</h1>
 
-<h2 align="center"> FB CRACKING WITHOUT LOGIN TOOL </h2>
+<h2 align="center"> FB CRACKING LOGIN WITH TOKEN AND FB ID </h2>
 
 <p align="center">
-      LATEST FAST CLONING COMAND WITHOUT ID LOGIN
+      LATEST FAST CLONING COMANG FB TOKEN AND ID LOGIN
 </p>
 
 
